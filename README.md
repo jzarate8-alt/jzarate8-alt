@@ -15,4 +15,5 @@ The first technology that I owned was a huge computer with the drive on a sepera
 
 *Study of Interest*
 
+I have been a high school math teacher for over 8 years. I was a special education teacher for half a year, but I was needed in the math deparment. The last two years I have been teaching Exploring Computer Science and I have fallen in love with it ever since. Next year I will be sitting in an AP computer science class which I will be teaching the following year. I am excited to learn more about computer science, as technology is our future. 
 
